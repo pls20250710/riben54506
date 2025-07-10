@@ -18,4 +18,4 @@
 
 综上，成功的成人资源站不仅要注重内容质量，更需全方位优化用户体验与技术架构，才能在竞争激烈的市场环境中脱颖而出，实现可持续发展。
 
-<span style="display:none;">[Canonical link]( ）</span>
+<span style="display:none;">[Canonical link]( https://github.com/pls20250710/riben54506 ）</span>
